@@ -1,4 +1,4 @@
-# PEC3: Hibridación a través de las gafas de Manovich
+# PEC3: Visionando el futuro con las gafas de Manovich
 
 #### Carlos Vera Casanova
 
